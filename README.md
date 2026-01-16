@@ -1,4 +1,4 @@
-# Yorushika – 夕凪、某、花惑い
+# Yorushika – 夕凪、某、花惑い - Evening calm,Somewhere,Fireworks
 
 > **歌詞登録ステータス：同期歌詞あり**
 
